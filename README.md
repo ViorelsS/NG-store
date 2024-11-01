@@ -6,6 +6,7 @@ https://www.youtube.com/watch?v=Kbauf9IgsC4&t=40s
 
 il 29/10/24 é saltato
 il 30/10/24 é saltato
+il 01/11/24 é saltato
 
 # Store
 
