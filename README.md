@@ -11,6 +11,7 @@ https://www.youtube.com/watch?v=Kbauf9IgsC4&t=40s
 - il 03/11/24 é saltato
 - il 04/11/24 é saltato
 - il 07/11/24 é saltato
+- il 08/11/24 é saltato
 
 # Store
 
